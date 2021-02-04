@@ -1,1 +1,1 @@
-# c-c-tr-m-ng-hai-chi-u
+# cuc tri mang hai chieu
